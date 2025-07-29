@@ -1,5 +1,9 @@
 ## Hi, my name is Paranoia!! I'm a person who mostly lives in my own world.. You can learn a little about me here!
 
+Paranoia, Noah/Noa, Ellie any pronouns <<3 A 16-year-old child Pansexual, please don't be homophobic. I'm crying already.. ISFP, a complex child, an introvert .I love role-playing games
+
+DNI!! Homophobes, incest/pedophilia shippers, and others Please leave.
+
 :･ﾟ✧:･.☽˚｡･ﾟ✧:･.:
 
 ![5206195125707995011](https://github.com/user-attachments/assets/d7d3a6ce-6fe0-4e9d-a98a-124b484c849f)
