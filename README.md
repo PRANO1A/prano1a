@@ -4,6 +4,9 @@ Paranoia, Noah/Noa, Ellie any pronouns <<3 A 16-year-old child Pansexual, please
 
 DNI!! Homophobes, incest/pedophilia shippers, and others Please leave.
 
+please, I don't like company. please, no. I often withdraw into myself and disappear for a while, and if I'm not around for a week, please don't text me, I'm fine. 
+We're friends, but don't tell me how nice I am just because you've known me for a few days. I'm a diverse person. I don't have a relationship, and I don't plan on getting one anytime soon. and I love flirting :3
+
 :･ﾟ✧:･.☽˚｡･ﾟ✧:･.:
 
 ![5206195125707995011](https://github.com/user-attachments/assets/d7d3a6ce-6fe0-4e9d-a98a-124b484c849f)
