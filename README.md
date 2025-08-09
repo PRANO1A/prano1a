@@ -3,7 +3,7 @@
 ![5206195125707995011](https://github.com/user-attachments/assets/d7d3a6ce-6fe0-4e9d-a98a-124b484c849f)
 cr:  @aamx1i twitter
 
-  What's my name? Oh shit, man, I have so many names.. Paranoia, Noah/Noah, Ellie/Ellias, Marley, Hallucination, but now I mostly use **_Paranoia/Noah._**
+  What's my name? Oh shit, man, I have so many names.. Paranoia, Noah, Ellie/Ellias, Marley, Hallucination, but now I mostly use **_Paranoia/Noah._**
 
 pronouns? _any._
 
