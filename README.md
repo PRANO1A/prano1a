@@ -31,7 +31,7 @@ cr: @shr1mp_ll twitter
 
 my kinns :
 
-lloyd [ninjago]; john [lynchfd]; richard [lofd]; tommy and georgeNotFound [dsmp]; royer [xmp]; furina [genshin]; morty [rick and morty]; Newt [the maze runner]; lisa [the crusader]; elliot [forsaken]
+lloyd [ninjago]; john [lynchfd]; richard [lofd]; tommy and georgeNotFound [dsmp]; royer [xmp]; furina [genshin]; morty [rick and morty]; Newt [the maze runner]; fox [the crusader]; elliot [forsaken]
 
 ![6e4f1da74e847f619751c9f0a0d33d82](https://github.com/user-attachments/assets/83ab53a8-ee23-4e3c-92f2-5caddd626d0e)
 
