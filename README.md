@@ -62,7 +62,7 @@ _something between a fox and a dog._
 
 <img width="2000" height="1720" alt="IMG_4754" src="https://github.com/user-attachments/assets/cbf88788-d80b-426f-8fdd-59c6a4aff13c" />
 
-my diskord : @prano1a 
+my dicord : @prano1a 
 
 I'm a music lover, but I mostly listen to Alex G, Cavetown, mcCafferty, Mr. Kitty, and similar artists.
 
