@@ -13,11 +13,12 @@ Pansexual, please don't be homophobic. I'm crying already.. ISFP, a complex chil
 ![89c7771faf42b3aa7ba0d8055a52cb41](https://github.com/user-attachments/assets/5000bbc5-4488-49cf-8904-0a37723985fc)
 ✧   I love flirting
 
-  We're friends, but don't tell me how nice I am just because you've known me for a few days. I'm a diverse person. 
+ Well, don't judge a book by its cover. The cover may be beautiful, but the inside is rotting.
+ -
+ 
 I don't have a relationship, and I don't plan on getting one anytime soon.
--
 
-c*h and int are always allowed
+_c*h and int are always allowed_
 
 :･ﾟ✧:･.☽˚｡･ﾟ✧:･.:⁀➷✧˚ ༘ ⋆｡♡˚✧˖°
 
@@ -55,7 +56,7 @@ cr: @kuqii_ twitter
  ... I want to be loved, but I'm afraid of making mistakes again.
  -
 
- _You already know my name, and if you want to start a conversation, please don't immediately perceive me as a comfortable and polite person. I am completely different, a multifaceted individual who doesn't have a clear "true" self. Instead, I wear masks and personalities, and I lie about my true feelings. I can withdraw into myself, disappear abruptly, and return just as suddenly. If I become attached, I may distance myself out of fear of falling in love or being abandoned. I am always open to communication and spending time together in silence._
+ _You already know my name, and if you want to start a conversation, please don't take me for who I seem to be at first glance. I am a completely different, diverse person who doesn't have a clear sense of myself. Instead, I adapt my personality to the person I'm with. I often lie about my true feelings because I don't want to burden others with my problems. I can be introverted, suddenly disappear, and return just as suddenly. Sometimes I say things without thinking, and if my words or actions have hurt you, please let me know. If I become attached, I may withdraw out of fear of falling in love or being abandoned. I am always open to communication and spending time together in silence._
 
 _something between a fox and a dog._
 
