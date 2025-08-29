@@ -23,12 +23,5 @@ welcome c*h
 
 
 [strawpage](prano1a.straw.page) - for more detailed information??
-my dicord : @prano1a 
-
-I'm a music lover, but I mostly listen to Alex G, Cavetown, mcCafferty, Mr. Kitty, and similar artists.
-
-**_(the repository contains music)_**
-
-![e526bebaf1314773d8f5221e7e927ef8 (1)](https://github.com/user-attachments/assets/fcef7d6e-fbfe-4a8c-a109-04a44b511dda)
 
 
