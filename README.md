@@ -9,7 +9,7 @@ welcome c*h
 
 <p align="center"> Lololoshka, DSMP, QSMP, Forsaken, Roblox, Genshin Impact, Honkai Star Rail, LynchFD, Crusader, NinjaGo, Dark Butler, Supernatural, Hell Boss, Rick and Morty, The Maze Runner, Silent Hill, Witcher, Detroit
 <p align="center">  my kinns :
-<p align="center"> lloyd [ninjago]; john [lynchfd]; richard [lofd]; tommy and georgeNotFound [dsmp]; royer [xmp]; furina [genshin]; morty [rick and morty]; Newt [the maze runner]; fox [the crusader]; elliot [forsaken]
+<p align="center"> lloyd [ninjago]; john [lynchfd]; richard [lofd]; tommy and georgeNotFound [dsmp]; royer [qsmp]; furina [genshin]; morty [rick and morty]; Newt [the maze runner]; fox [the crusader]; elliot [forsaken]
 <p align="center">  my favorite ships :
 
 <p align="center">Elliot/chance , mafioso/ITrapped or Eunoia , noob/guest 666 , noli/07n7 , lolocest , two times /azure , shatledsky/builder , Thomas/Newt , Dream/GNF , Quackity/WilburSoot , Royer/Cellbit , Aether/Tartaglia
