@@ -22,6 +22,6 @@ welcome c*h
                                                   I'm sorry.
 
 
-[strawpage](prano1a.straw.page) - for more detailed information??
+[strawpage](https://prano1a.straw.page) - for more detailed information??
 
 
