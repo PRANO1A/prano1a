@@ -1,6 +1,6 @@
 ## Am I really fine, or am I just really good at lying?
 
-<img width="736" height="736" alt="Без названия368_20250829200140" src="https://github.com/user-attachments/assets/d60203a6-5d2d-4242-9583-8861afef7be5" />
+<img width="736" height="736" alt="Без названия383_20250905164526" src="https://github.com/user-attachments/assets/feef5fb3-6be0-4bec-b7d7-4e0ab6bd5c0c" />
 welcome c*h
 
 <p align="center"> let's do it again.. my name is paranoia, but you can call me noah, marley, hallucination, or ellie, okay?
