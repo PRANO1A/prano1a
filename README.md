@@ -18,9 +18,7 @@ welcome c*h
 
 <p align="center"> you can find me at the bakery.. I'm usually afk, but I try to show up to interact with someone!!
 
-<p align="center"> I'm not in a relationship, but I have someone I'm in love with. I just mean that lol, if you have feelings for me,
-                                                  I'm sorry.
-
+<p align="center"> i love my boyfriend
 
 [strawpage](https://prano1a.straw.page) - for more detailed information??
 
