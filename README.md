@@ -19,7 +19,9 @@ welcome c*h
 <p align="center"> you can find me at the bakery.. I'm usually afk, but I try to show up to interact with someone!!
 
 <p align="center"> i love my boyfriend
+ 
+ <p align="center"> please respect the fact that I'm sitting with friends or with my partner. DON't sit with me at such moments, I don't like company and I'm terribly uncomfortable.
 
-[strawpage](https://prano1a.straw.page) - for more detailed information??
+  [strawpage](https://prano1a.straw.page) - for more detailed information??
 
 
