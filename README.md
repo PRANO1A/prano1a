@@ -1,6 +1,6 @@
-## Am I really fine, or am I just really good at lying?
+## I am cruel, I am gentle, I can make you laugh
 
-<img width="736" height="736" alt="Без названия383_20250905164526" src="https://github.com/user-attachments/assets/feef5fb3-6be0-4bec-b7d7-4e0ab6bd5c0c" />
+<img width="736" height="736" alt="Без названия439_20251117035210" src="https://github.com/user-attachments/assets/894a9b16-bf20-4f4e-9144-3860bf4b6930" />
 welcome c*h
 
 <p align="center"> let's do it again.. my name is paranoia, but you can call me noah, marley, hallucination, or ellie, okay? (you can also contact me by the name of the character I'm sitting for in projects or in whose skin I'm sitting).
